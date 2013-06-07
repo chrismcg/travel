@@ -46,6 +46,7 @@
 * [Trof](http://www.trofnq.co.uk)
 * ~~[Velvet](http://www.velvetmanchester.com/bar)~~
 * [Victorian Chop House Company](http://www.samschophouse.co.uk)
+* [The Woodstock](http://www.thewoodstockarmsdidsbury.co.uk/)
 
 ## Activities
 
